@@ -1,0 +1,1 @@
+Temporary folder for all art related files 
